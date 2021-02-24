@@ -1,0 +1,1 @@
+1/2pineapple,3carrots,1raddish,1/4ampalaya,2chopped onions,toasted sesameseeds,3tsp olive oil
